@@ -14,7 +14,7 @@ Tengo conocimientos en una amplia gama de áreas como arquitectura de computador
 
 ### 🌐 Connect with Me!
 - [LinkedIn](https://www.linkedin.com/in/sofia-amallo/)
-- [Resume (English)](https://drive.google.com/file/d/1fLiuXnIomDWzS2bzclMeyPuaK9P3KE0w/view?usp=sharing)
-- [Currículum (Español)](https://drive.google.com/file/d/1nviVbMi5x3vGesfyRgPHAXbd93tnRKEz/view?usp=sharing)
+- [Resume (English or Spanish)](https://drive.google.com/drive/folders/1leReSHJjI4l2bfvXQzWuoLQ9Qk3fzRzk?usp=drive_link)
+- Or reach me at sofia.amallo@mi.unc.edu.ar
 
 Do not forget to check some of my projects below 👇🏻
